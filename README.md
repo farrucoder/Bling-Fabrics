@@ -1,4 +1,4 @@
-Click here to jump into the app => https://blingfabrics.in
+Click here to jump into the website => https://blingfabrics.in
 
 # Log in or Sign Page
 
